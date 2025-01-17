@@ -4,7 +4,8 @@
 
 HTML PURE
 
-![image](https://github.com/user-attachments/assets/d81d42bb-71c7-4ad3-8e1f-125d94b06edb)
+![pickachu](https://github.com/user-attachments/assets/9ac8d797-afb9-4109-9d96-36ebe02e66de)
+
 
 ![image](https://github.com/user-attachments/assets/2719d38f-8cfe-449e-bedb-16f5988d6c5f)
 
